@@ -30,4 +30,4 @@ Here is what keeps my creativity flowing:
 ---
 
 *Thanks for stopping by! Feel free to check out my repositories
-![]https://vercel.app31fpmaht7epct3cxonniqtrmdm3e
+![]https://novatorm-spotify-remade.vercel.app/api/v1/now-playing?useername=]31fpmaht7epct3cxonniqtrmdm3e)
