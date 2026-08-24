@@ -1,16 +1,32 @@
-## Hi there 👋
+# i love Crowley :3
+Welcome to my profile! I am a digital artist and AU creator from Poland. 🇵🇱✨
 
-<!--
-**PookieJoost/PookieJoost** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+### 💫 About Me
+* **Identity:** Transmasc 🏳️‍⚧️ | Pansexual 🏳️‍🌈
+* **Pronouns:** He / Him 
+* **Zodiac Sign:** Capricorn ♑
+* **What I do:** I love creating AUs (Alternate Universes) and drawing fanart! 🎨✍️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+### 🎬 Fandoms & Favorite Ships (OTPs)
+* **No, I'm Not a Human** ➔ 🧬 *Palegun*
+* **South Park** ➔ 🎒 *Terrlip*
+* **Good Omens** ➔ 🌟 *Aziracrow*
+* **Team Fortress 2 (TF2)** ➔ 🔧 *Spyper*
+* **Invincible**
+
+---
+
+### 🎵 Music Taste
+Here is what keeps my creativity flowing:
+* **Joost Klein** 🇳🇱
+* **Tyler, The Creator** 🪐
+* **Gorillaz** 🦍
+* **Tom Cardy** 🎸
+
+---
+
+*Thanks for stopping by! Feel free to check out my repositories.* 🌟
