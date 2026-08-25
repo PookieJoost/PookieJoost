@@ -31,5 +31,5 @@ Here is what keeps my creativity flowing:
 
 <img src="https://spotify-github-profile.vercel.app/api/view?uid=31fpmaht7epct3cxonniqtrmdm3e">
 <img width="480" height="480" alt="1000035046" src="https://github.com/user-attachments/assets/c6809f76-406f-47ab-aaec-c1bf14caeaed" />
-<img width="496" height="498" alt="1000035053" src="https://github.com/user-attachments/assets/b76e2964-422c-4cf5-9065-5f51275d5bd6" />
+
 
