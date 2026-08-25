@@ -34,8 +34,9 @@ Here is what keeps my creativity flowing:
 <img width="1600" height="730" alt="1000035058" src="https://github.com/user-attachments/assets/4add24bf-3d5f-4b01-8c81-7d1cfeb4b574" />
 
 ## ✨ My Pony Town Collection ##
-Mother Loves Jared! hmf
+
 <img width="150"  alt="1000035166" src="https://github.com/user-attachments/assets/0fa69d1c-cb91-48a2-8add-bc874842d402" />
+Mother Loves Jared! hmf
 
 <img width="150"  alt="1000035167" src="https://github.com/user-attachments/assets/3bc4d033-8c88-423b-a843-d6cd19a16b8a" />
 Diva from 1670 Jakub 
