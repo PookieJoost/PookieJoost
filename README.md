@@ -18,7 +18,7 @@ Welcome to my profile! I am a digital artist and AU creator from Poland. 🇵�
 * **Good Omens** ➔ 🌟 *Aziracrow*
 * **Team Fortress 2 (TF2)** ➔ 🔧 *Spyper*
 * **Invincible**
-  #CupHead# ➔ ☕ *DevilDice*
+*  **CupHead** ➔ ☕ *DevilDice*
 ---
 
 ### 🎵 Music Taste
