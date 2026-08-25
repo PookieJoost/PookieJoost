@@ -51,7 +51,7 @@ gun lover
 my gay doc tf2 ;3
 
 <img width="150" alt="1000035171" src="https://github.com/user-attachments/assets/a15002ef-45fb-4d31-8420-4dec2f88196e" />
-red flags girl :3
+red flags girl
 
 <img width="150"  alt="1000035172" src="https://github.com/user-attachments/assets/9f9c5215-d00f-4c09-81bc-9ca71d04b57c" />
 onion king Joost
