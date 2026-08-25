@@ -30,8 +30,9 @@ Here is what keeps my creativity flowing:
 
 
 <img src="https://spotify-github-profile.vercel.app/api/view?uid=31fpmaht7epct3cxonniqtrmdm3e">
-<img width="480" height="480" alt="1000035046" src="https://github.com/user-attachments/assets/c6809f76-406f-47ab-aaec-c1bf14caeaed" />
+<img width="150" alt="1000035046" src="https://github.com/user-attachments/assets/c6809f76-406f-47ab-aaec-c1bf14caeaed" />
 <img width="1600" height="730" alt="1000035058" src="https://github.com/user-attachments/assets/4add24bf-3d5f-4b01-8c81-7d1cfeb4b574" />
 
 ## ✨ My Pony Town Collection ##
+<img width="4096" height="4096" alt="1000035166" src="https://github.com/user-attachments/assets/0fa69d1c-cb91-48a2-8add-bc874842d402" />
 
