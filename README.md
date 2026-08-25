@@ -45,3 +45,12 @@ gay snake good omens
 
 <img width="150"  alt="1000035169" src="https://github.com/user-attachments/assets/5238a005-e035-4d55-85d5-93a739cce7f1" />
 gun lover
+
+<img width="150" alt="1000035170" src="https://github.com/user-attachments/assets/970de94c-b6ee-446a-920c-18a0e20444f9" />
+my gay doc tf2 ;3
+
+<img width="150" alt="1000035171" src="https://github.com/user-attachments/assets/a15002ef-45fb-4d31-8420-4dec2f88196e" />
+red flags girl :3
+
+<img width="150"  alt="1000035172" src="https://github.com/user-attachments/assets/9f9c5215-d00f-4c09-81bc-9ca71d04b57c" />
+onion king Joost
