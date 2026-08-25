@@ -42,3 +42,6 @@ Diva from 1670 Jakub
 
 <img width="150" alt="1000035168" src="https://github.com/user-attachments/assets/e4539628-a6d9-4e53-a95f-933a8b4d50fc" />
 gay snake good omens
+
+<img width="150"  alt="1000035169" src="https://github.com/user-attachments/assets/5238a005-e035-4d55-85d5-93a739cce7f1" />
+gun lover
