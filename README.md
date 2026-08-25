@@ -27,8 +27,5 @@ Here is what keeps my creativity flowing:
 * **Gorillaz** 🦍
 * **Tom Cardy** 🎸
 
----
-
-*Thanks for stopping by! Feel free to check out my repositories
 ![](https://vercel.app)
 
