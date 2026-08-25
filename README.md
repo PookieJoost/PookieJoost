@@ -28,4 +28,4 @@ Here is what keeps my creativity flowing:
 * **Tom Cardy** 🎸
 
 
-<img src="https://spotify-github-profile.vercel.app/api/view?uid=31fpmaht7epct3cxonniqtrmdm3e">
+<img src="https://novatorem-spotify-readme.vercel.app/api/view?uid=31fpmaht7epct3cxonniqtrmdm3e">
