@@ -29,4 +29,5 @@ Here is what keeps my creativity flowing:
 
 
 <img src="https://spotify-github-profile.vercel.app/api/view?uid=31fpmaht7epct3cxonniqtrmdm3e">
-<img src="https://pin.it/3BWP8ED7e">
+
+<img src="https://giphy.com">
