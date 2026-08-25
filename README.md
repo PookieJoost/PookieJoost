@@ -58,4 +58,4 @@ onion king Joost
 
 <img width="250" height="120" alt="1000035183" src="https://github.com/user-attachments/assets/6f6f7eee-5435-442c-96fe-35aa6b29c0ac" /> 
 
-<img width="473" height="480" alt="1000035195" src="https://github.com/user-attachments/assets/8800596a-090c-4c44-bf03-141478887408" />
+
