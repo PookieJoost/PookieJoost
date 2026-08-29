@@ -31,7 +31,9 @@ Here is what keeps my creativity flowing:
  
 
 <p align="center">
-  <img src="https://vercel.app" alt="Spotify" />
+  <a href="https://open.spotify.com">
+    <img src="https://scannables.cc" alt="Spotify Playlist" />
+  </a>
 </p>
  <img width="480" height="480" alt="1000035830" src="https://github.com/user-attachments/assets/54cfa1e0-0f29-43cd-b5ee-e342d9ff95a9" />
  
