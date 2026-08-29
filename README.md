@@ -32,7 +32,9 @@ Here is what keeps my creativity flowing:
 
 
 <img width="4096 "height=4069"alt="1000035046" src="https://github.com/user-attachments/assets/c6809f76-406f-47ab-aaec-c1bf14caeaed" />
-<img width="1600" height="730" alt="1000035058" src="https://github.com/user-attachments/assets/4add24bf-3d5f-4b01-8c81-7d1cfeb4b574" />
+<img <img width="480" height="480" alt="1000035830" src="https://github.com/user-attachments/assets/54cfa1e0-0f29-43cd-b5ee-e342d9ff95a9" />
+
+ width="1600" height="730" alt="1000035058" src="https://github.com/user-attachments/assets/4add24bf-3d5f-4b01-8c81-7d1cfeb4b574" />
 
 ## ✨ My Pony Town Collection ##
 Mother Loves Jared! hmf
