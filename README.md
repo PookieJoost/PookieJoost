@@ -30,11 +30,7 @@ Here is what keeps my creativity flowing:
 
  
 
-<p align="center">
-  <a href="https://spotify.com">
-    <img src="https://shields.io" alt="Spotify" />
-  </a>
-</p>
+
  <img width="480" height="480" alt="1000035830" src="https://github.com/user-attachments/assets/54cfa1e0-0f29-43cd-b5ee-e342d9ff95a9" />
  
  <img width="1600" height="730" alt="1000035058" src="https://github.com/user-attachments/assets/4add24bf-3d5f-4b01-8c81-7d1cfeb4b574" />
