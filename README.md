@@ -31,7 +31,7 @@ Here is what keeps my creativity flowing:
  
 
 <p align="center">
-  <a href="https://last.fm">
+  <a href="https://spotify.com">
     <img src="https://vercel.app" alt="Spotify Player" />
   </a>
 </p>
