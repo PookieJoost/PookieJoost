@@ -26,11 +26,11 @@ Here is what keeps my creativity flowing:
 * **Joost Klein** 
 * **Tyler, The Creator** 
 * **Gorillaz** 
-* **Tom Cardy** 
+* **Tom Cardy**
 
- 
 
-<p align="center">
+
+  <p align="center">
   <a href="https://spotify.com">
     <img src="https://vercel.app" alt="Spotify Player" />
   </a>
