@@ -1,6 +1,6 @@
 
  ***i love Crowley :3***
-Welcome to my profile! I am a digital artist and AU creator from Poland. 
+Welcome to my profile! I am a digital artist and AU creator from Poland.  
 
 ---
 
