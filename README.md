@@ -27,7 +27,11 @@ Here is what keeps my creativity flowing:
 * **Tyler, The Creator** 
 * **Gorillaz** 
 * **Tom Cardy**
-<p align="center"><a href="https://spotify.com"><img src="https://vercel.app" alt="Spotify Player" /></a></p>
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
  <img width="480" height="480" alt="1000035830" src="https://github.com/user-attachments/assets/54cfa1e0-0f29-43cd-b5ee-e342d9ff95a9" />
  
