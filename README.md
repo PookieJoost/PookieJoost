@@ -1,8 +1,5 @@
-<p align="center">
-  <a href="https://kittinanx.com">
-    <img src="https://kittinanx.com" alt="Spotify">
-  </a>
-</p>
-    
 
 
+<a href="https://github.com">
+  <img src="https://vercel.app" alt="Spotify Profile Widget">
+</a>
