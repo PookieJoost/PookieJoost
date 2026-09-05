@@ -3,7 +3,9 @@
 
 <img width="4096" height="4096" alt="1000038113" src="https://github.com/user-attachments/assets/947839c6-3c59-4e5b-a810-5ed70e23ac12" /> 
  
- 
+ <p align="center">
+  <img src="https://seeyoufarm.com" alt="Licznik">
+</p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&redirect=true)
 
