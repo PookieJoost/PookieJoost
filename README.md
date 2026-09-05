@@ -1,7 +1,6 @@
 
-<p align="center">
-  <img src="https://ibb.co" width="300" alt="Azirocrow Cherries">
-</p>
+<img width="4096" height="4096" alt="1000038105" src="https://github.com/user-attachments/assets/d1df0108-9a1d-4658-827a-486b1dc52098" />
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&redirect=true)
