@@ -1,6 +1,7 @@
 
 <img width="4096" height="4096" alt="1000038105" src="https://github.com/user-attachments/assets/d1df0108-9a1d-4658-827a-486b1dc52098" />
 
+<img width="280" height="237" alt="1000038109" src="https://github.com/user-attachments/assets/54fbe2b4-fcd7-412f-829f-73cb8f40d045" />
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31h7teb4byvhvuommkx6fniqmxm4&redirect=true)
