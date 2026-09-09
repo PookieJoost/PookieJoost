@@ -13,5 +13,4 @@
 
 𝙸𝚏 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚘𝚋𝚜𝚎𝚜𝚜𝚎𝚍 𝚠𝚒𝚝𝚑 𝙶𝚘𝚘𝚍 𝙾𝚖𝚎𝚗𝚜, 𝙿𝙻𝙴𝙰𝚂𝙴 𝙱𝙴 𝙼𝚈 𝙵𝚁𝙸𝙴𝙽𝙳𝚂! 𝙰𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞 𝚑𝚊𝚙𝚙𝚎𝚗 𝚝𝚘 𝚋𝚎 𝚏𝚛𝚘𝚖 𝙿𝚘𝚕𝚊𝚗𝚍 𝚝𝚘𝚘, 𝚒𝚝 𝚠𝚒𝚕𝚕 𝚕𝚒𝚝𝚎𝚛𝚊𝚕𝚕𝚢 𝚋𝚕𝚊𝚜𝚝 𝚖𝚎 𝚒𝚗𝚝𝚘 𝚜𝚙𝚊𝚌𝚎 𝚠𝚒𝚝𝚑 𝚑𝚊𝚙𝚙𝚒𝚗𝚎𝚜𝚜! >:𝟹
 
-Here is a WhatsApp group for fans:
-👉 https://chat.whatsapp.com/LxgGoP9LyfrFC6yjQmDZMU?s=cl&p=a&mlu=4&ilr=4
+Here is a WhatsApp group for fans: https://chat.whatsapp.com/LxgGoP9LyfrFC6yjQmDZMU?s=cl&p=a&mlu=4&ilr=4
