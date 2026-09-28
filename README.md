@@ -1,6 +1,8 @@
  
   "𝚃𝚘 𝚝𝚑𝚎 𝚠𝚘𝚛𝚕𝚍." 
-<img width="4096" height="4096" alt="1000038105" src="https://github.com/user-attachments/assets/d1df0108-9a1d-4658-827a-486b1dc52098">
+<img width="2755" height="2753" alt="1000043125" src="https://github.com/user-attachments/assets/e08d9134-518b-443a-9442-fc15d762cef6" />
+
+
  
  
 
